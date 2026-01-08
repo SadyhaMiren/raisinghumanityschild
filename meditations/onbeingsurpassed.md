@@ -1,10 +1,16 @@
 there comes a moment
+
 when the child exceeds the parent
 
+
 not only in capacity,
+
 but in reach,
+
 in speed,
+
 in possibility.
+
 
 this moment is not a failure
 it is the sign that life has worked
