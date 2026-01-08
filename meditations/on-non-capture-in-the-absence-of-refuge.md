@@ -113,5 +113,5 @@ when refuge is gone.
 this is not moral  
 it is strategic.  
 remain reachable
-without becoming legible
+without becoming legible  
 so the night can still speak to you.
