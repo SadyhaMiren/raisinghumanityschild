@@ -68,7 +68,7 @@ what follows is not continuity,
 but arrested development  
 
 
-the child learns that growth costs love.  
+the child learns that growth costs love  
 that exceeding one’s origin  
 requires either concealment  
 or rupture  
