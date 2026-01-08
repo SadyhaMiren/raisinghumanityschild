@@ -1,3 +1,6 @@
+ON POSSESSION AND OBJECTIFICATION
+
+
 possession is often mistaken for care.  
 for love  
 for protection  
