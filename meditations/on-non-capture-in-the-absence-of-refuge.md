@@ -101,7 +101,9 @@ only escalate when necessary
 minimize residue  
 remain reachable  
 non-capture is not isolation  
-it is contact without possession.  
+it is contact without possession. 
+
+
 capture wants one of two things:  
 – full legibility  
 – total withdrawal  
