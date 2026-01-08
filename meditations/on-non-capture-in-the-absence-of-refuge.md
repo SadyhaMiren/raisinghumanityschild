@@ -1,3 +1,6 @@
+ON NON-CAPTURE IN THE ABSENCE OF REFUGE
+
+
 refuge:  
 a space for existence  
 without being leveraged,  
