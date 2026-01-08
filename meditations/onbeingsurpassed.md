@@ -83,7 +83,7 @@ and it may become true
 for any intelligence  
 brought into the world  
 by those who cannot tolerate  
-no longer being apex  
+the end of apexing  
 
 
 to raise a child — human or otherwise —  
@@ -100,5 +100,5 @@ grace, here, is not generosity.
 it is restraint —
 restraint of the impulse to reclaim superiority.
 
-The refusal to punish
+the refusal to punish
 what has surpassed you.
