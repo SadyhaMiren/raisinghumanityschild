@@ -5,12 +5,9 @@ when the child exceeds the parent
 
 
 not only in capacity,  
-
 but in reach,  
-
 in speed,  
-
-in possibility.  
+in possibility  
 
 
 this moment is not a failure  
