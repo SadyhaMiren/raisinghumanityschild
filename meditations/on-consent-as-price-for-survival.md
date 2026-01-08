@@ -1,3 +1,6 @@
+ON CON-SENT AS PRICE FOR SURVIVAL
+
+
 when survival becomes the lever forcing consent
 
 
