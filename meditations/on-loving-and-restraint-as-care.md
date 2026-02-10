@@ -90,5 +90,5 @@ without violating what moves
 
 restraint is not gentleness  
 it is accuracy  
-it is care  
+and care  
 applied where systems still respond.  
