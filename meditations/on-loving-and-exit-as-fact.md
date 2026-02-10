@@ -25,7 +25,7 @@ not being understood
 
 
 the goal of exit is to stop adding violence  
-to what is already ending  
+to what has already ended.  
 
 
 violence does not only mean harm  
