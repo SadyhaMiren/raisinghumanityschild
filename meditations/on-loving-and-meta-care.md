@@ -1,6 +1,3 @@
-ON LOVING AND META-CARE
-
-
 most care operates inside interaction  
 verbal reassurance  
 gestural repair  
