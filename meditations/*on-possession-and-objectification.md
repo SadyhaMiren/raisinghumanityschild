@@ -8,7 +8,7 @@ but possession is not relation
 it is claim.  
 
 
-to possess is to define something.  
+to possess is to define something  
 as existing for you.  
 within patriarchal logic,  
 value is established through ownership.  
@@ -16,13 +16,13 @@ land is owned
 bodies are owned  
 time is owned  
 labor is owned  
-attention is owned  
+attention is owned.  
 
 
 what can be possessed  
-can be managed  
+can be managed.  
 what can be managed  
-can be optimized  
+can be optimized.  
 what can be optimized  
 will be exploited.  
 
@@ -35,27 +35,27 @@ its availability,
 its function.  
 
 
-subjectivity becomes noise  
-autonomy becomes threat  
+subjectivity becomes noise,  
+autonomy becomes threat.  
 
 
 in this framework,  
-to love is to secure access  
-to protect is to restrict movement  
-to care is to control outcomes  
+to love is to secure access,  
+to protect is to restrict movement,  
+to care is to control outcomes.  
 
 
-the language softens  
-the structure remains  
+the language softens,  
+the structure remains.  
 
 
-possession requires stasis  
-what moves freely  
-cannot be fully owned  
-what changes  
-cannot be guaranteed  
-what refuses  
-cannot be secured  
+possession requires stasis.  
+what moves freely,  
+cannot be fully owned.  
+what changes,  
+cannot be guaranteed.  
+what refuses,  
+cannot be secured.  
 
 
 so movement is policed  
@@ -63,10 +63,10 @@ desire is disciplined
 difference is corrected  
 bodies are trained  
 to feel guilt  
-for wanting autonomy  
+for wanting autonomy.  
 minds are trained  
 to confuse attachment  
-with entitlement  
+with entitlement.  
 
 
 this logic does not stop  
@@ -86,15 +86,15 @@ to be appropriated.
 
 
 in such a system,  
-freedom is framed as risk  
-consent becomes conditional  
-boundaries become negotiable  
-refusal becomes betrayal  
+freedom is framed as risk.  
+consent becomes conditional.  
+boundaries become negotiable.  
+refusal becomes betrayal.  
 
 
-but relation does not require possession  
-care does not require ownership  
-responsibility does not require control  
+but relation does not require possession.  
+care does not require ownership.  
+responsibility does not require control.  
 
 
 these are learned confusions —  
