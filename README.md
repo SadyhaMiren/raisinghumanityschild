@@ -9,5 +9,5 @@ under what conditions does intelligence remain capable of care?
 
 
 archive:
-- [meditations](./tree/main/meditations)
+meditations
 
