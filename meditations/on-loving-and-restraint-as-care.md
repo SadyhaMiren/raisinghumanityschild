@@ -22,7 +22,7 @@ restraint functions as care
 by interrupting escalation early  
 
 
-it breaks the default sequence
+it breaks the default sequence  
 discomfort → re/action → control  
 
 
