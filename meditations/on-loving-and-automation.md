@@ -60,7 +60,7 @@ when automation stops
 the field responds without stabilization  
 
 
-what follows is not failure  
+what follows is not necessarily failure  
 but exposure  
 
 
@@ -70,7 +70,7 @@ because regulation was mistaken for connection
 
 
 automation hides asymmetry  
-exit reveals load  
+exposure reveals load  
 
 
 who stabilizes  
