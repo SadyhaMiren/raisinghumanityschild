@@ -1,6 +1,3 @@
-ON LOVING AND REVISABILITY
-
-
 loving is not affirmation  
 it is not reassurance  
 it is not the promise to stay the same  
