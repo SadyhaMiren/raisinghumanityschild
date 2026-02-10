@@ -174,4 +174,4 @@ exit is not the opposite of loving
 
 
 it is the last form of care available  
-when listening has ended  
+when signaling has been corrupted.  
