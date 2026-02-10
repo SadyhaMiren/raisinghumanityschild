@@ -15,7 +15,7 @@ meta-care does not evaluate individual acts
 it evaluates the field in which acting occurs  
 
 
-it asks not  
+it doesn´t ask:  
 what response is appropriate now  
 but  
 what configuration allows responses to register   
