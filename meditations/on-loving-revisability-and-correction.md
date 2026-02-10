@@ -36,7 +36,7 @@ without verdict
 correction requires hierarchy  
 even when softened  
 even when called maturity  
-even when framed as adult  
+even when framed as "adult"  
 
 
 correction lowers  
