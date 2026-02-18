@@ -9,7 +9,7 @@ to being altered
 to being answerable  
 
 
-to love is to allow revisability  
+loving is to allow revisability  
  
 
 not correction  
@@ -61,7 +61,7 @@ can say no
 can stop  
 
 
-a love that cannot be revised  
+love that cannot be revised  
 is already a capture  
  
 
