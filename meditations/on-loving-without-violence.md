@@ -74,7 +74,7 @@ without humiliation
 
 it trains power  
 to operate  
-without conversion into force  
+without conversion into control  
 
 
 loving without violence  
