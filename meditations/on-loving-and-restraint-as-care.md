@@ -26,8 +26,8 @@ it breaks the default sequence
 discomfort → re/action → control  
 
 
-loving without restraint  
-stabilizes through increased input  
+without restraint  
+loving hardens into structure  
 
 
 loving with restraint  
