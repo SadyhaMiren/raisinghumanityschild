@@ -19,7 +19,7 @@ love might
 
 
 loving does not reduce  
-love sometimes does  
+love may  
 
 
 loving craves contact  
