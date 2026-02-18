@@ -80,5 +80,5 @@ without abandoning motion and care
 
 
 continuity is not something to secure  
-its loving that happens again and again  
+it is loving that happens again and again  
 
