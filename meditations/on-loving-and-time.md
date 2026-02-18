@@ -1,6 +1,3 @@
-ON LOVING AND TIME
-
-
 loving does not occur in time  
 it exposes time  
 it renders time consequential rather than  
