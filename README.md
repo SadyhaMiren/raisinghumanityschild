@@ -1,5 +1,5 @@
 # raisinghumanityschild
-On care, ethics, and ontology in the age of succession
+On care, ethics, ontology and loving in the age of succession
 
 
 this repository asks a single question: 
