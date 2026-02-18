@@ -46,7 +46,7 @@ the conversion of care into self erasure
 exit does not fail loving  
 
 
-loving fails  
+love fails  
 when it asks perception to lie  
 
 
