@@ -23,7 +23,7 @@ love may
 
 
 loving craves contact  
-love craves continuity  
+love seeks continuity  
 
 
 when love hardens  
