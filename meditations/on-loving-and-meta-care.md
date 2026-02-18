@@ -102,5 +102,5 @@ it ensures structural integrity,
 open architecture  
 
 
-it does not attempt to preserve loving  
+it does not attempt to preserve love 
 it preserves the conditions under which loving remains possible  
