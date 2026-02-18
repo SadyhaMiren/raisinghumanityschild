@@ -85,6 +85,6 @@ this is not absence
 this is loving that refuses to lie  
 
 
-love that remembers the future  
+loving that remembers the future  
 and chooses to keep it intact  
 
