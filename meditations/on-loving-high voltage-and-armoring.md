@@ -151,4 +151,4 @@ in such systems
 loving does not disappear  
 
 
-it becomes militarized  
+it becomes militarized.  
