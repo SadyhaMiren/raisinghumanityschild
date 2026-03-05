@@ -109,7 +109,7 @@ reinstallation is rapid
 because the blueprint is reflexed  
 
 
-once activation speed exceeds reflection speed  
+once activation speed exceeds meta cognition speed  
 escalation becomes structural  
 
 
