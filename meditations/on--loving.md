@@ -3,6 +3,7 @@ __relational mechanics__
 *field notes on loving systems*  
 
 
+
 these texts describe relational dynamics  
 
 not emotions, not ideals  
