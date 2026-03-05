@@ -17,10 +17,12 @@ loving is treated here
 not as sentiment  
 
 but as interaction organized by care and attraction.  
+  
+  
+  
 
 
-
-
+      
 __on loving and love__
 
 
