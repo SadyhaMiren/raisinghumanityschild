@@ -1,4 +1,4 @@
-__on loving, high voltage and early pattern seeding__   
+__on loving and high voltage: early pattern seeding__   
 
 relational systems crystallize early  
 
