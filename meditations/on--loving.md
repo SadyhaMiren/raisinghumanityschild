@@ -8,7 +8,11 @@ these texts describe relational dynamics
 
 not emotions, not ideals  
 
-they examine: forces, architecture, latency, protocol.  
+they examine: 
+forces  
+architecture  
+latency  
+protocol  
 
 how systems stabilize  
 how they destabilize  
