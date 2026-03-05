@@ -2,7 +2,7 @@ __relational mechanics__
 
 *field notes on loving systems*  
 
-
+<br>
 
 these texts describe relational dynamics  
 
