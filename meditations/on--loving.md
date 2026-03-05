@@ -1,19 +1,21 @@
 __relational mechanics__
 
 
-field notes on loving systems
+field notes on loving systems  
 
-these texts describe relational dynamics 
-not emotions, not ideals 
-they examine: forces, architecture, latency, protocol.
+these texts describe relational dynamics  
 
-how systems stabilize 
-how they destabilize
+not emotions, not ideals  
 
-loving is treated here
-not as sentiment
+they examine: forces, architecture, latency, protocol.  
 
-but as interaction organized by care and attraction.
+how systems stabilize  
+how they destabilize  
+
+loving is treated here  
+not as sentiment  
+
+but as interaction organized by care and attraction.  
 
 
 __on loving and love__
