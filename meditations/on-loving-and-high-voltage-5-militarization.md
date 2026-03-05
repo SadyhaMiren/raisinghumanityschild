@@ -1,4 +1,4 @@
-__on loving, high voltage and militarization__
+__on loving and high voltage: militarization__
 
 armoring is not the absence of loving  
 it is loving reorganized under threat  
