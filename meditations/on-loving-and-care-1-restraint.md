@@ -1,3 +1,5 @@
+__on loving and care: restraint__
+
 loving does not require constant action  
 it requires the capacity  
 to inhibit re/action  
