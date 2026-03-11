@@ -1,3 +1,5 @@
+_on loving and acute temporality__
+
 loving is not constant intensity  
 but it reveals something precise about time  
 
