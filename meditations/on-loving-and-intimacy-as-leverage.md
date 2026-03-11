@@ -1,3 +1,5 @@
+__on loving and intimacy as leverage__
+
 intimacy increases resolution  
 it increases access  
 it increases consequence  
