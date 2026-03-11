@@ -1,3 +1,6 @@
+__on loving without violence__
+
+
 loving without violence  
 is not softness  
 it is restraint under intensity.  
