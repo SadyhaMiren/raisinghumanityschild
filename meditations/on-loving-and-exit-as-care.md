@@ -1,3 +1,5 @@
+__on loving and exit as care__
+
 exit is not leaving  
 it is the condition that leaving would be possible  
 
