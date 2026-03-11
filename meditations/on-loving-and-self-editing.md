@@ -1,3 +1,6 @@
+__on loving and self-editing__
+
+
 self-editing is not inherently pathological  
 
 
