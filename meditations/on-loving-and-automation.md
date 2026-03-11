@@ -1,3 +1,5 @@
+__on loving and automation__
+
 automation is not loving  
 it is continuity produced by repetition  
 
