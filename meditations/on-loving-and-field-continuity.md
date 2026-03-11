@@ -1,3 +1,5 @@
+__on loving and field continuity__
+
 for a field to continue  
 collapse cannot be narrated as failure  
 it must be read as information  
