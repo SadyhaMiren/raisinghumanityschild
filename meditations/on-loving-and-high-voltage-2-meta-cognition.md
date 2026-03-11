@@ -1,4 +1,4 @@
-__on loving, high voltage and meta cognition__ 
+__on loving and high voltage: meta cognition__ 
 
 
 high voltage without meta cognition escalates  
