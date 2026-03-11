@@ -1,3 +1,5 @@
+__on loving and exit as fact__
+
 loving can remain  
 where continuation is no longer viable  
 
