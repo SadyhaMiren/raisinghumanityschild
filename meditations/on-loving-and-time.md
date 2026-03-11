@@ -1,3 +1,6 @@
+__on loving and time__
+
+
 loving does not occur in time  
 it exposes time  
 it renders time consequential rather than  
