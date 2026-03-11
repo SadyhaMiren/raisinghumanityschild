@@ -1,3 +1,5 @@
+__on loving and dominance__
+
 dominance is not force  
 it is asymmetry that appears  
 when resolution increases  
